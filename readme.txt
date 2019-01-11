@@ -1,4 +1,4 @@
-Git is so fking gooooooooood.
+Git is so fking good.
 The third time edit.
 The fourth time edit.
 Test Manage Modify.
